@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Naruto909
-- 👀 I’m interested in discord bot codeing
-- 🌱 I’m currently learning codeing
+- 👀 I’m interested in discord bot coding
+- 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on discord bot's
 - 📫 How to reach me ☢★♫N̵̒͛À̴̅R̶̈́̅U̷̾͝T̴̋̆O̴͐̄♫★☢♚☽#4626 make sure you copy and paste it
 
